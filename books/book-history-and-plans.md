@@ -7,7 +7,7 @@ Giełda Podstawy inwestowania Wydanie III zaktualizowane (Stock exchange basics 
 Miecz przeznaczenia wiedźmin (Sword of Destiny - Witcher) | Andrzej Sapkowski | August 2019 |  October 2020 | 978-83-7578-064-2 | 
 Ostatnie życzenie - Wiedźmin (Last wish - Witcher) | Andrzej Sapkowski | April 2020 |  March 2021 | ~ | 
 Krew elfów - Wiedźmin ( Blood of Elves - Witcher )| Andrzej Sapkowski | 2025 | January 2026 | ~ |
-
+Your Brain at Work ( Twój mózg w działaniu ) | David Rock | January 2026 | | 978-83-8188-693-2 |
 
 
 # Books in reading
@@ -25,5 +25,5 @@ Zawód programista | | | |
 Sztuka zwycięstwa. Wspomnienia twórcy Nike - Knight Phil | | | |
 Lider wystarczająco dobry. 12 lekcji autentycznego przywództwa | | | |
 Witcher books | Andrzej Sapkowski | | |
-Your Brain at Work ( Twój mózg w działaniu ) | David Rock | | |
+
 
