@@ -6,6 +6,7 @@ Elon Musk | Ashlee Vance | January 2017 | December 2018 | 978-83-240-3440-6
 Giełda Podstawy inwestowania Wydanie III zaktualizowane (Stock exchange basics of investing 3rd edition) | Adam Zaremba | January 2019 | August 2019 | 978-83-246-8050-4
 Miecz przeznaczenia wiedźmin (Sword of Destiny - Witcher) | Andrzej Sapkowski | August 2019 |  October 2020 | 978-83-7578-064-2 | 
 Ostatnie życzenie - Wiedźmin (Last wish - Witcher) | Andrzej Sapkowski | April 2020 |  March 2021 | ~ | 
+Krew elfów | Andrzej Sapkowski | 2025 | January 2026 | ~ |
 
 
 
