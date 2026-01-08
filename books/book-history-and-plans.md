@@ -25,4 +25,5 @@ Zawód programista | | | |
 Sztuka zwycięstwa. Wspomnienia twórcy Nike - Knight Phil | | | |
 Lider wystarczająco dobry. 12 lekcji autentycznego przywództwa | | | |
 Witcher books | Andrzej Sapkowski | | |
+Your Brain at Work ( Twój mózg w działaniu ) | David Rock | | |
 
