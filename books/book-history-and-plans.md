@@ -13,6 +13,7 @@ Krew elfów - Wiedźmin ( Blood of Elves - Witcher )| Andrzej Sapkowski | 2025 |
 Book title | Author | Date of start | Date of finish | ISBN |
 -----------|--------|---------------|----------------|------|
 Your Brain at Work ( Twój mózg w działaniu ) | David Rock | January 2026 | | 978-83-8188-693-2 |
+Wiedzmin Czas Pogardy | Sapkowski | March 2026 | | |
 
 # Books in the library
 
